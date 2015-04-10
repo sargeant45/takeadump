@@ -1,6 +1,9 @@
 Ethan Arterberry
+
 Mrs. Jones
+
 April	 9<sup><u>th</u></sup>, 2015
+
 # **Meridian the Obsidian**
 There was once a piece of flaming hot molten rock named Meridian. Meridian wanted to be more than a piece of flaming hot molten rock. Meridian wanted to go on adventures as a new type of rock. So Meridian decided to pack his bags and tell his magma friends goodbye. Meridian went to the eruption branch of his volcano and asked them to launch him out of the volcano. Meridian went flying! He could see all of the screaming people under the exploding active volcano running away, and the dust clouds in the air! Later on, when Meridian hit the ground, he solidified from lava to obsidian. He was now a black hunk of sharp shiny solid rock. Meridian felt happy because he could now finally go on magnificent adventures. Meridian went on an adventure to Alberta, Canada. It was beautiful! Everything was white and cold. Meridian just stood there. He loved the ice.
 
