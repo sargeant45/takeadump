@@ -1,0 +1,15 @@
+Ethan Arterberry
+Mrs. Jones
+April	 9<sup><u>th</u></sup>, 2015
+# **Meridian the Obsidian**
+There was once a piece of flaming hot molten rock named Meridian. Meridian wanted to be more than a piece of flaming hot molten rock. Meridian wanted to go on adventures as a new type of rock. So Meridian decided to pack his bags and tell his magma friends goodbye. Meridian went to the eruption branch of his volcano and asked them to launch him out of the volcano. Meridian went flying! He could see all of the screaming people under the exploding active volcano running away, and the dust clouds in the air! Later on, when Meridian hit the ground, he solidified from lava to obsidian. He was now a black hunk of sharp shiny solid rock. Meridian felt happy because he could now finally go on magnificent adventures. Meridian went on an adventure to Alberta, Canada. It was beautiful! Everything was white and cold. Meridian just stood there. He loved the ice.
+
+## **5,000 YEARS LATER**
+
+5,000 years ago a rock named Meridian the Obsidian decided to stand on top of the Columbia Icefield. He eventually eroded and deposited under the mountains of Alberta, Canada. The glaciers ground him down under extreme pressure against the surface in a process called weathering. After Meridian was ground down he became silt. His silt buddies decided to play Twister, which involved a lot of compaction and cementation.  This game of Twister lasted 4,500 years. Meridian was no longer Meridian the Obsidian. He was now called Murphy the Siltstone. Murphy the Siltstone was a boring, brown, clastic, sedimentary, useless piece of rock that really just sits underground.
+
+## **5,000 YEARS LATER**
+
+Murphy the Siltstone is still a useless piece of rock, and he is now even more pushed underground. He magically teleported to Brazil in order to move the plot forward. Fortunately, he teleported right in the middle of a fault. The fault was so hot and strong that it metamorphosed Murphy into a new rock, again. Before Murphy knew it, he had a new name. Murphy's new name was Kermit the Slate. Kermit the Slate gave his new appearance a 7/10, because he was a brightly colored, fine grained, foliated rock, but he still thought that he was cooler when he was an obsidian. Although Kermit the Slate liked his old name, the author decided to change his name to keep the story consistent. Kermit the Slate yelled at the author, "I want my old name back!" To which the author replied, "Too bad, you are a rock and you aren't real." Anyway, Kermit the Slate magically teleported again to a new location, because the author's  teacher required him to end at the beginning. The new location was the volcano he began his fun journey in. Kermit the Slate soon became a flaming hot piece of molten rock named Meridian. Meridian wanted to be more than a piece of flaming hot molten rock. Meridian wanted to go on adventures as a new type of rock.
+
+# **THE END?!**
